@@ -1,0 +1,25 @@
+<center>
+
+![0 fucks given](http://images.cheezburger.com/completestore/2011/3/4/5c32eeff-ba2a-4185-840c-53d5c3f3a324.jpg)  
+![0 fucks given](http://24.media.tumblr.com/tumblr_lkchaiDOxD1qzma4ho1_400.jpg)  
+![0 fucks given](http://images.cheezburger.com/completestore/2011/8/28/872414d4-7a48-4b43-a0a7-ca5283d8eb57.png)  
+![0 fucks given](http://27.media.tumblr.com/tumblr_lfvb44IYKS1qgh97qo1_500.jpg)  
+![0 fucks given](http://i0.kym-cdn.com/photos/images/list/000/121/239/images-320110725-22047-1aakbc6.jpeg?1311573350)  
+![0 fucks given](https://belieber.files.wordpress.com/2011/08/zero-fucks-given.png?w=590)  
+![0 fucks given](http://troll.me/images/fatos-nano/number-of-fucks-given-today-zero.jpg)  
+![0 fucks given](http://memegenerator.net/cache/instances/400x/8/8947/9162159.jpg)  
+![0 fucks given](http://memegenerator.net/cache/instances/400x/11/11605/11883652.jpg)  
+![0 fucks given](http://i.qkme.me/35aqhl.jpg)  
+![0 fucks given](http://static.merchnow.com/images/37580/470x470.jpeg)  
+![0 fucks given](http://3.bp.blogspot.com/-vxQC9IQ10lE/TlI2jx3TvMI/AAAAAAAAAOE/T4yiXJxnxtI/s400/NO%2BFUCKS.jpg)  
+![0 fucks given](http://27.media.tumblr.com/tumblr_lv3jv9UuRd1r10ir1o1_500.jpg)  
+![0 fucks given](http://images.cheezburger.com/completestore/2011/3/16/61ab0e21-1b2c-48e4-9465-2a341c3705ab.gif)  
+![0 fucks given](http://arch.413chan.net/0_fucks_given-%28n1311472237929%29.jpg)  
+![0 fucks given](http://26.media.tumblr.com/tumblr_lqahkbKY6m1qg0cblo1_500.jpg)  
+![0 fucks given](http://24.media.tumblr.com/tumblr_ljjr2qVR9P1qcvjvqo1_500.jpg)  
+![0 fucks given](http://assets.diylol.com/hfs/27b/673/9bc/resized/indifferent-bush-meme-generator-0-fucks-given-that-day-8845b6.jpg)  
+![0 fucks given](http://img.ponibooru.org/_images/7594a3d2764fd07a47210b335b4da76a/53306%20-%20cheerilee%20fucks_given%3A_zero%20image_macro%20macro.png)  
+![0 fucks given](http://2.bp.blogspot.com/-8T3uuHw11B0/TaiSK9XWYsI/AAAAAAAAAYo/UenwqIvcb_c/s1600/howardterp-and-not-a-single-fuck-was-given-that-day.jpg)  
+![0 fucks given](http://images.cheezburger.com/completestore/2011/8/11/f61dc3ed-7ac4-44fd-bf3b-9f4c3db0907d.jpg)  
+
+</center>
